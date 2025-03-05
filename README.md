@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jose Cerro and i am a multimedia engineering student
+- 👋 Hi, I’m @Jose Cerro and i am a Multimedia Engineering
 
 
 
